@@ -11,4 +11,6 @@ Press one of these numbers to read about me or something.
 
 3 • corpse mike
 
+
+
 [ NOTE ] : I have horrid memory, I don't sleep right + I hit my head alot by accident, so my memory is HORRIBLE. I am SO SO SO sorry if I don't remember you.
