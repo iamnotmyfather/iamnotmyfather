@@ -1,7 +1,7 @@
 # i am not my father.
 not him. not now. not tomorrow. not next year. never.
 
-Check my Gun.lol for more information about me.
+Check my guns.lol for more information about me.
 
 . 7*Teen*
 
